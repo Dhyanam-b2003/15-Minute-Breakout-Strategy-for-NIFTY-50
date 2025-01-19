@@ -1,0 +1,1 @@
+# 15-Minute-Breakout-Strategy-for-NIFTY-50
